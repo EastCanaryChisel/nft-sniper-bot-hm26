@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with NFT-optimized nft sniper bot | whitelist-bypass + stop-loss, the #1 nft sniper bot. Includes whitelist-bypass and stop-loss for a faster and more
 
 
 
